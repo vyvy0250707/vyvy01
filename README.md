@@ -21,4 +21,4 @@
 
 如果你正在寻找一个免费的、高清的日本AV免费资源平台，来试试我们推荐的站点吧。这里有最新的番号和女优影片，最流畅的观看体验，无广告干扰，让你尽情享受每一部高质量的影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vyvy0250707/vyvy01 ）</span>
